@@ -1,4 +1,3 @@
-# nolyn's awesome page for cool kids
 
 i don't know what to put here so have my [youtube channel](https://www.youtube.com/channel/UCz6BUyTdeQDHADHzju_8E4g)
 
