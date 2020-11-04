@@ -6,10 +6,10 @@ here's my [twitter](https://twitter.com/nolyntwt) as well
 
 i also kinda stream on [twitch](https://twitch.tv/nolyn__) sometimes
 
-### woah look epic header text!!!!
+## woah look epic header text!!!!
 
 whoaaaaaaaahhhhhhhhhhhhhhhhhhhhh[h](https://youtu.be/dQw4w9WgXcQ)h jesus
 
-### all about me
+# all about me
 
 to be finished
