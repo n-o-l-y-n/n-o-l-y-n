@@ -1,1 +1,3 @@
-# Did you know that you can connect your Wii to the internet?
+# nolyn's awesome page for cool kids
+
+i don't know what to put here
